@@ -225,4 +225,4 @@ PicsArt is offered as a full free version with all features and updates included
 Unlock your creativity today by downloading PicsArt for free! Start editing and sharing your beautiful images with the world.
 
 ---
-**Last updated:** 2026-11-06 14:53:00 UTC
+**Last updated:** 2026-11-06 20:45:33 UTC
